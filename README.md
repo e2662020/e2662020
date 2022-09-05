@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @e2662020
 - 😆 This is my GitHub
-- 🇨🇳 I’m Chinese peopel
+- 🇨🇳 I’m China peopel
 - 😃 I’m 12 years old
 - 📫 How to reach me e2662020@outlook.com
 
